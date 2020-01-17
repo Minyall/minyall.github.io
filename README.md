@@ -1,1 +1,0 @@
-# minyall.github.io
